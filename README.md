@@ -1,1 +1,1 @@
-Game currently in beta. MOTD will change once released. 1
+Game should be out soon.
