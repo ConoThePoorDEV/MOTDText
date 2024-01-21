@@ -1,1 +1,1 @@
-Hello! I am aware of the mod menu situation. I will be trying to fix it as fast as possible.
+Hello! The biggest update in the current history of GU has released. Have fun!
