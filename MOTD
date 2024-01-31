@@ -1,1 +1,1 @@
-Hey, our game was recently playfab spammed by some dude that is -200 IQ. Our team at ANewLevel are working on anticheats and anti-spam. Sorry!
+Hello! The new update should be uploading. If you get an update prompt, please update. Thank you!
