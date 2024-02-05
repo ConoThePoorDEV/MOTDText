@@ -1,1 +1,1 @@
-Hello! The new update should be uploading. If you get an update prompt, please update. Thank you!
+The groundmonks said spring is coming. Anyways, thank you all for over 2K players! It's been a quick journey and we hope to continue it.
