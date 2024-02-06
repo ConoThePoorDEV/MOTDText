@@ -1,1 +1,1 @@
-The groundmonks said spring is coming. Anyways, thank you all for over 2K players! It's been a quick journey and we hope to continue it.
+Hey, I'm on my way to fixing the jiggly af fingers. Anyways, grano was demoted for threatening to leak peoples hometowns. We are trying to make this game a safer place!
